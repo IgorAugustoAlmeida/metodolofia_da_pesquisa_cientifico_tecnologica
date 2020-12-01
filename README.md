@@ -2,7 +2,7 @@
 
 O Problema.
 
-Um problema que venho me deparando, é de encontrar pessoas para poder jogar online sem o risco de me deparar com pessoas tóxicas(mal educadas, que xingam por qualquer motivo). 
+A dificuldade de se encontrar pessoas com a disponibilidade para jogar, que não sejam extremamente competitivas e que não tenham a ilusão de que o seu conhecimento de jogo é maior que o dos outros. Pessoas que tem um temperamento mais explosivo, tende a estragar a experiencia de todos que estao jogando com ele, esse é um problema que existe a muito tempo. Passar por esse tipo de experiencia é muito desgastante, ja que muitas pessoas jogam para aliviar o estresse e se divertir, mas acabam ficam mais estressadas e irritadas por passarem por essas situações.
 
 Motivação.
 
